@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on meet with new people and work
 - 📫 How to reach me sancontreras2023555@gmail.com
 - 😄 Pronouns: Martin/Santiago
-- ⚡ Fun fact: I'm new
+- ⚡ Fun fact: I'm autodidact and I learn fast
 
 <!---
 SantiagoContreras1/SantiagoContreras1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
