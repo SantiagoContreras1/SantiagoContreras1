@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SantiagoContreras1
-- 👀 I’m interested in work with people new
+- 👀 I’m interested in work with new people
 - 🌱 I’m currently learning to programming
 - 💞️ I’m looking to collaborate on meet with new people and work
 - 📫 How to reach me sancontreras2023555@gmail.com
